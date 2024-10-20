@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JawaharPrabhuGit
-- 👀 I’m interested in Agile Methodology & Scrum Framework
+- 👀 I’m interested in Agile Methodology, Scrum Framework and Project Management
 - 🌱 I’m currently Exploring Automotive Industry
 - 💞️ I’m looking to collaborate on Agile Methodology & Scrum Framework
 - 📫 How to reach me www.linkedin.com/in/jawahar-prabhu-link
